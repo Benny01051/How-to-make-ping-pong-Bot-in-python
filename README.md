@@ -2,6 +2,6 @@
 
 🚀 Make sure to like and sub 🚀
 
-🤖 Discord Server: https://discord.gg/g5c2kWDQb7
+🤖 Discord Server: [https://discord.gg/g5c2kWDQb7](https://discord.gg/vFDDuWnrGt)
 
 #️⃣ YT Channel for tutourial:
